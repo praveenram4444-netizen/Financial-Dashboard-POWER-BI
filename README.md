@@ -54,3 +54,8 @@ Blue & Silver credit card are contributing to 93% of overall transactions
 TX, NY & CA is contributing to 68%
 Overall Activation rate is 57.5%
 Overall Delinquent rate is 6.06%
+
+
+I appreciate your time in reading through my project. Please feel free to connect with me if you’d like to discuss it further!
+
+LinkedIn: [Connect with me professionally]www.linkedin.com/in/praveen-ram-r-979088190
